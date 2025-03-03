@@ -1,19 +1,19 @@
-It
-I have a idea to spread around world every timing (as a day in all day)
-you sudo
-do 
-do
-do
-do
-do
-do
-do
-7
-lucky!
-8
-9
-10 countless
-11 false engaged
-12 all persons pur
-13 count 1 out
+It<br>
+I have a idea to spread around world every timing (as a day in all day)<br>
+you sudo<br>
+do<br>
+do<br>
+do<br>
+do<br>
+do<br>
+do<br>
+do<br>
+7<br>
+lucky!<br>
+8<br>
+10 countless<br>
+11 false engaged<br>
+12 all persons pur<br>
+13 count 1 out<br><br><br>
+
 --
